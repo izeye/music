@@ -1,4 +1,6 @@
 # music
+* Anna Kendrick - Cups (Pitch Perfect’s “When I’m Gone”)
+  * https://www.youtube.com/watch?v=cmSbXsFE3l8
 * Blowin in The Wind - Bob Dylan
   * https://www.youtube.com/watch?v=3l4nVByCL44
 * Disturbed - The Sound Of Silence [Official Music Video]
