@@ -9,3 +9,7 @@
   * https://www.youtube.com/watch?v=OPapxr8GvGA
 * Eric Clapton -Autumn Leaves
   * https://www.youtube.com/watch?v=UQlFOX0YKlQ
+
+# For kids
+* Shakira - Try Everything (Official Video)
+  * https://www.youtube.com/watch?v=c6rP-YP4c5I
