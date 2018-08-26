@@ -1,6 +1,8 @@
 # music
 * Anna Kendrick - Cups (Pitch Perfect’s “When I’m Gone”)
   * https://www.youtube.com/watch?v=cmSbXsFE3l8
+* Beatles - Let It Be [1970]
+  * https://www.youtube.com/watch?v=2xDzVZcqtYI
 * Blowin in The Wind - Bob Dylan
   * https://www.youtube.com/watch?v=3l4nVByCL44
 * Disturbed - The Sound Of Silence [Official Music Video]
