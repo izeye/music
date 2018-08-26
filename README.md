@@ -17,5 +17,7 @@
 # For kids
 * FROZEN | Let It Go Sing-along | Official Disney UK
   * https://www.youtube.com/watch?v=L0MK7qz13bU
+* Lava (From "Lava" (Official Lyric Video))
+  * https://www.youtube.com/watch?v=uh4dTLJ9q9o
 * Shakira - Try Everything (Official Video)
   * https://www.youtube.com/watch?v=c6rP-YP4c5I
