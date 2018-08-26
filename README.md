@@ -11,6 +11,8 @@
   * https://www.youtube.com/watch?v=UQlFOX0YKlQ
 * Irma Thomas - Anyone Who Knows What Love Is (Will Understand)
   * https://www.youtube.com/watch?v=1S-fR3_X7gg
+* Katy Perry - Roar (Official)
+  * https://www.youtube.com/watch?v=CevxZvSJLk8
 * One Voice - The Wailin' Jennys
   * https://www.youtube.com/watch?v=3e66rJn01_A
 
