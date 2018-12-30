@@ -23,5 +23,7 @@
   * https://www.youtube.com/watch?v=L0MK7qz13bU
 * Lava (From "Lava" (Official Lyric Video))
   * https://www.youtube.com/watch?v=uh4dTLJ9q9o
+* Miguel - Remember Me (Dúo) (From "Coco"/Official Lyric Video) ft. Natalia Lafourcade
+  * https://www.youtube.com/watch?v=3iDxU9eNQ_0
 * Shakira - Try Everything (Official Video)
   * https://www.youtube.com/watch?v=c6rP-YP4c5I
