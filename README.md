@@ -7,7 +7,7 @@
   * https://www.youtube.com/watch?v=3l4nVByCL44
 * Disturbed - The Sound Of Silence [Official Music Video]
   * https://www.youtube.com/watch?v=u9Dg-g7t2l4
-* Ella Fitzgerald - All The Things You Are (with lyrics)
+* Ella Fitzgerald - All The Things You Are (with lyrics
   * https://www.youtube.com/watch?v=OPapxr8GvGA
 * Eric Clapton -Autumn Leaves
   * https://www.youtube.com/watch?v=UQlFOX0YKlQ
@@ -21,6 +21,8 @@
 # For kids
 * FROZEN | Let It Go Sing-along | Official Disney UK
   * https://www.youtube.com/watch?v=L0MK7qz13bU
+* HAPPY - Pharrell Williams (feat. Minions)
+  * https://www.youtube.com/watch?v=MOWDb2TBYDg
 * Lava (From "Lava" (Official Lyric Video))
   * https://www.youtube.com/watch?v=uh4dTLJ9q9o
 * Miguel - Remember Me (Dúo) (From "Coco"/Official Lyric Video) ft. Natalia Lafourcade
