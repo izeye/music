@@ -1,4 +1,6 @@
 # music
+* [Eng Sub]Lena Park - My Everything
+  * https://www.youtube.com/watch?v=NGNGgDd8450
 * Anna Kendrick - Cups (Pitch Perfect’s “When I’m Gone”)
   * https://www.youtube.com/watch?v=cmSbXsFE3l8
 * Beatles - Let It Be [1970]
