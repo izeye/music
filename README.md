@@ -19,6 +19,8 @@
   * https://www.youtube.com/watch?v=CevxZvSJLk8
 * One Voice - The Wailin' Jennys
   * https://www.youtube.com/watch?v=3e66rJn01_A
+* The Band Perry - If I Die Young (Official Video)
+  * https://www.youtube.com/watch?v=7NJqUN9TClM
 
 # For kids
 * FROZEN | Let It Go Sing-along | Official Disney UK
