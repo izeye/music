@@ -3,6 +3,8 @@
   * https://www.youtube.com/watch?v=NGNGgDd8450
 * Anna Kendrick - Cups (Pitch Perfect’s “When I’m Gone”)
   * https://www.youtube.com/watch?v=cmSbXsFE3l8
+* Beastie Boys - Intergalactic (Official Music Video)
+  * https://www.youtube.com/watch?v=qORYO0atB6g
 * Beatles - Let It Be [1970]
   * https://www.youtube.com/watch?v=2xDzVZcqtYI
 * Blowin in The Wind - Bob Dylan
