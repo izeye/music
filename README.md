@@ -23,6 +23,8 @@
   * https://www.youtube.com/watch?v=3e66rJn01_A
 * The Band Perry - If I Die Young (Official Video)
   * https://www.youtube.com/watch?v=7NJqUN9TClM
+* They Might Be Giants - Particle Man (Tiny Tunes)
+  * https://www.youtube.com/watch?v=LsAiCs66l40
 
 # For kids
 * FROZEN | Let It Go Sing-along | Official Disney UK
