@@ -17,6 +17,8 @@
   * https://www.youtube.com/watch?v=UQlFOX0YKlQ
 * Irma Thomas - Anyone Who Knows What Love Is (Will Understand)
   * https://www.youtube.com/watch?v=1S-fR3_X7gg
+* John Denver _ Take Me Home, Country Roads - HD with Lyrics
+  * https://www.youtube.com/watch?v=wH8Ajv_6Xj4
 * Katy Perry - Roar (Official)
   * https://www.youtube.com/watch?v=CevxZvSJLk8
 * One Voice - The Wailin' Jennys
