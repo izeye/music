@@ -21,6 +21,8 @@
   * https://www.youtube.com/watch?v=wH8Ajv_6Xj4
 * Katy Perry - Roar (Official)
   * https://www.youtube.com/watch?v=CevxZvSJLk8
+* Leaving On A Jet Plane - John Denver
+  * https://www.youtube.com/watch?v=19ToC8pQrCY
 * One Voice - The Wailin' Jennys
   * https://www.youtube.com/watch?v=3e66rJn01_A
 * Sasha Sloan - Older (Official Video)
