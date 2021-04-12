@@ -7,6 +7,7 @@
 * [Disturbed - The Sound Of Silence [Official Music Video]](https://www.youtube.com/watch?v=u9Dg-g7t2l4)
 * [Ella Fitzgerald - All The Things You Are (with lyrics)](https://www.youtube.com/watch?v=OPapxr8GvGA)
 * [Eric Clapton -Autumn Leaves](https://www.youtube.com/watch?v=UQlFOX0YKlQ)
+* [Father And Son By Cat Stevens With Lyrics](https://www.youtube.com/watch?v=eXdm0Yt7BFI)
 * [Irma Thomas - Anyone Who Knows What Love Is (Will Understand)](https://www.youtube.com/watch?v=1S-fR3_X7gg)
 * [John Denver _ Take Me Home, Country Roads - HD with Lyrics](https://www.youtube.com/watch?v=wH8Ajv_6Xj4)
 * [Katy Perry - Roar (Official)](https://www.youtube.com/watch?v=CevxZvSJLk8)
