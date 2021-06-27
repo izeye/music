@@ -19,6 +19,9 @@
 * [The Rembrandts- I'll be there for you (official video)](https://www.youtube.com/watch?v=q-9kPks0IfE)
 * [They Might Be Giants - Particle Man (Tiny Tunes)](https://www.youtube.com/watch?v=LsAiCs66l40)
 
+# YouTube
+* [The True Meaning of Hey Jude by The Beatles](https://www.youtube.com/watch?v=OWuRQ1VliS4)
+
 # For kids
 * FROZEN | Let It Go Sing-along | Official Disney UK
   * https://www.youtube.com/watch?v=L0MK7qz13bU
