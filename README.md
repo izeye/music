@@ -23,13 +23,9 @@
 * [The True Meaning of Hey Jude by The Beatles](https://www.youtube.com/watch?v=OWuRQ1VliS4)
 
 # For kids
-* FROZEN | Let It Go Sing-along | Official Disney UK
-  * https://www.youtube.com/watch?v=L0MK7qz13bU
-* HAPPY - Pharrell Williams (feat. Minions)
-  * https://www.youtube.com/watch?v=MOWDb2TBYDg
-* Lava (From "Lava" (Official Lyric Video))
-  * https://www.youtube.com/watch?v=uh4dTLJ9q9o
-* Miguel - Remember Me (Dúo) (From "Coco"/Official Lyric Video) ft. Natalia Lafourcade
-  * https://www.youtube.com/watch?v=3iDxU9eNQ_0
-* Shakira - Try Everything (Official Video)
-  * https://www.youtube.com/watch?v=c6rP-YP4c5I
+* [FROZEN | Let It Go Sing-along | Official Disney UK](https://www.youtube.com/watch?v=L0MK7qz13bU)
+* [HAPPY - Pharrell Williams (feat. Minions)](https://www.youtube.com/watch?v=MOWDb2TBYDg)
+* [I Know an Old Lady Who Swallowed a Fly - Nursery Rhymes for Kids - Kids Songs - The Learning Station](https://www.youtube.com/watch?v=oNwmzDlyCt8)
+* [Lava (From "Lava" (Official Lyric Video))](https://www.youtube.com/watch?v=uh4dTLJ9q9o)
+* [Miguel - Remember Me (Dúo) (From "Coco"/Official Lyric Video) ft. Natalia Lafourcade](https://www.youtube.com/watch?v=3iDxU9eNQ_0)
+* [Shakira - Try Everything (Official Video)](https://www.youtube.com/watch?v=c6rP-YP4c5I)
